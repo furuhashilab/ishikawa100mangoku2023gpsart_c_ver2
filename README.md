@@ -1,0 +1,1 @@
+# ishikawa100mangoku2023gpsart_c_ver2
